@@ -1,4 +1,4 @@
-Olá, obrigada por visitar meu perfil, eu sou a Bia Menezes, espero poder ajuda-lo(a)!
+😊 Olá, obrigada por visitar meu perfil, eu sou a Bia Menezes, espero poder ajuda-lo(a)!
 <br>
 🖥️ Desenvolvimento de sistemas|COTIL-UNICAMP
 <br>
